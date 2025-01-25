@@ -1,2 +1,2 @@
 # Smvita
-Auther -Shantanu Zingare
+Auther -Shantanu Zingare(Sarva krupa bhavan)
